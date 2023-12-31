@@ -12,7 +12,7 @@
 
 - 📫 Connect with me on **www.linkedin.com/in/ alfiya-shaikh-b993342a7**
 
-- ⚡ Fun fact about me is **After facing numerous challenges, I am now resurrecting my passion for creativity, breathing new life into my artistic pursuits with a renewed sense of purpose and inspiration.**
+- ⚡ Fun fact about me is **I am now resurrecting my passion for creativity, breathing my life into my artistic pursuits**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
